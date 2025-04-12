@@ -54,3 +54,4 @@ Citations:
 [8] https://community.aws/tags/mexc-referral-code-mexc-rb
 [9] https://www.cryptoreferralcode.net/referral-code-english/mexc-referral-code
 [10] https://vk.com/video-226997514_456239017
+[11] https://github.com/Startup-Referral-Codes/Mexc-Referral-Code
